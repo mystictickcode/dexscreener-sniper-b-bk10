@@ -1,4 +1,4 @@
-# 
+# smart dexscreener sniper bot | buy-pressure-analysis + stop-loss offers the most advanced dexscreener sniper bot, with buy-pressure-analysis and stop-loss. Ideal for professional
 
 
 
